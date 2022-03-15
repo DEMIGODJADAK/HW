@@ -1,3 +1,2 @@
-# HW
 Copy responsibly
 😊😊😊😊😊😊
